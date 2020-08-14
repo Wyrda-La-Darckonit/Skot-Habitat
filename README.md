@@ -37,11 +37,20 @@
 
 ###	这里可以聊游戏吗？
 
-可以。
+可以。如果你有steam账户，可以加入我们的steam群组：Skot Habitat。我们的群内热门游戏包括（不限于）：
+
+- Armello
+- Counter-Strike: Global Offensive
+- Destiny 2
+- Divinity: Original Sin 2
+- Dota 2
+- Hunt: Showdown
+- Monster Hunter: World
+- Tom Clancy's Rainbow Six Siege
 
 ###	这里可以聊时政话题吗？
 
-可以。
+可以。但建议你在明确“立论驳论、举证质证”的基本素养后，再进行这样的讨论。
 
 ###	这是可以语C/演绎吗？
 
@@ -109,15 +118,20 @@
 
 谨记，当你离开栖息地范围后，我们的公约与守则就不一定依然适用了。请遵守其他群的群规。
 
-**ND栖龙远湾 Bay of Dragons**  
-891601650  
-创建于2019-06-27。Ndragon官方群聊  
-群介绍：Ndragon官方群聊
+**群龙默示录**
+1015936917  
+创建于2019-12-22。Dragon's Prophet的私服群（之一）。  
+群介绍：暂无。
 
 **Furagon幻龙之域【总群】**  
 452775281  
 创建于2015-04-24。Furagon综合聊天群。  
 群介绍：欢迎大家来到Furagon【总群】官网：www.furagon.com ，这里是龙爱好者聚集地，温馨友爱的龙族家园～欢迎大家加入～本群禁H。入群后请阅读群规并自觉遵守群规。大家友好相处，祝各位朋友在群里面聊得开心～
+
+**ND栖龙远湾 Bay of Dragons**  
+891601650  
+创建于2019-06-27。Ndragon官方群聊  
+群介绍：Ndragon官方群聊
 
 **龙吧新群**  
 1143570737  
