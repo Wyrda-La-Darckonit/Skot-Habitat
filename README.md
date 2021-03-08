@@ -43,23 +43,22 @@
 
 这里的成员可能与某个/某些其他的Furry群有所重叠，但这里不是Furry群，龙圈也不隶属于兽圈。不过相关的话题依然可以正常讨论。
 
+###	栖息地好像还有其他群？
+
+是的。除了栖息地主群以外，我们还有以下分群：
+
+-	Skot Concil 2021：议事大厅，平时不使用，仅用于决策。不对外公开。
+-	Skot Dungeon 2021：演绎分群，专注于演绎，没有闲聊。只接受主群成员加入。
+-	栖息地煤球制造厂（伪）：开车群，为了解决需求和分担风险而单独建立。需要由三名现有成员引荐加入。
+-	萌新画秋风（龍族畫廊）：绘画教学群，为愿意学习画龙技艺者提供交流。需要展示现有作品，但不设门槛。
+
 
 
 ##	关于话题
 
 ###	这里可以聊游戏吗？
 
-可以。如果你有steam账户，可以加入我们的steam群组：Skot Habitat。我们的群内热门游戏包括（不限于）：
-
-- ARK: Survival Evolved
-- Armello
-- Cyberpunk 2077
-- Destiny 2
-- Dota 2
-- League of Legend
-- Left 4 Dead 2
-- Monster Hunter: World
-- Tom Clancy's Rainbow Six Siege
+可以。如果你有steam账户，可以加入我们的steam群组：Skot Habitat。
 
 ###	这里可以聊时政话题吗？
 
